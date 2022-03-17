@@ -2,4 +2,4 @@
 
 My first repository
 
-I love ☕ and 🏊‍♀️
+I love ☕ , 🏊‍♀️ and traveling
